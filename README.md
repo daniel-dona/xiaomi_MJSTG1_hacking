@@ -1,0 +1,1 @@
+# xiaomi_MJSTG1_hacking
